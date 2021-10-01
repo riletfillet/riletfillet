@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @riletfillet or riley :) (she/they are my pronouns)
+- 👀 I’m interested in doing bots in discord/twitter and minecraft mods!
+- 🌱 I’m currently learning code!
+- 📫 How to reach me: ig cvnf1gur3, discord is ! rileyfies#0101, twitter is rileyxfv [<33]
